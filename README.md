@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **subuvhs@gmail.com**
 
-- 📄 Know about my experiences [https://rxresu.me/20ada54/subramanian-r-m](https://rxresu.me/20ada54/subramanian-r-m)
+- 📄 Know about my experiences [https://rxresu.me/20ada54/subramanian-r-m](https://rxresu.me/subuvhs/subramanian-r-m)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
